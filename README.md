@@ -1,1 +1,1 @@
-Previous Regression Analysis assignments and projects
+Karen's Regression Analysis assignments and projects
